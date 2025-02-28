@@ -1,3 +1,0 @@
-# Saj-t
-Igen
-Oké
